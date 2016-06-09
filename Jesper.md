@@ -4,6 +4,6 @@
 
 He. Hvordan går det
 
-det går ikke fint ikek okayt
+Vi tager din jesper
 
 Det var godt ;-)
