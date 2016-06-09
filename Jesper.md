@@ -4,6 +4,6 @@
 
 He. Hvordan går det
 
-det går fint
+det går ikke fint ikek okayt
 
 Det var godt ;-)
